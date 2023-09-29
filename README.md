@@ -2,7 +2,7 @@
 Machine learning engineer ⚙️
 Tech lover👨‍💻
 I love startups🚀
-Aspiring to improve in product/project management💹
+Aspiring to improve in product management💹
 
 
 
